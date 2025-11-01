@@ -6,9 +6,9 @@
 my pronuns are any, i dont really mind u calling me <br>
 a she or a him, thats ok! i'm also suppeeer aroace <br>
 
-i'm ambievert, infj 9w1 and interactons or c+h<br> 
+i'm ambievert, infj 9w1 interactions or c + h <br> 
 are welcome! i'm a weird but cool, feel to be<br> 
-yourself around me! i realy like new friends ! <br>
+yourself around me! i really like having new friends ! <br>
 
 to know more about me [carrd](https://) for more info
 
